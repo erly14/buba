@@ -1,2 +1,2 @@
 # buba
-segela jenis pekerjaan yang berhubungan dengan kegiatan penelitian dan pengabdian serta umkm
+ kegiatan penelitian dan pengabdian serta umkm
